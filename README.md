@@ -10,6 +10,6 @@ Juan Diego Rodriguez Somoza RS221448
 
 David Guillermo Campos Hernández CH220048
 
-
+Alfredo Antonio Campos Ochoa CO222267
 ```
 **Pertenecientes al "Grupo 4 de DWS "**
